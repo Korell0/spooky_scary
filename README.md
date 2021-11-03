@@ -4,7 +4,8 @@
 # amogus ඞඞඞ
 # spooky_scary
 SUS
-# sending
+لُلُصّبُلُلصّبُررً ॣ ॣh ॣ ॣ
+冗
 shivers
 down
 your spine
